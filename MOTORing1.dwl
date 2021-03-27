@@ -1,0 +1,3 @@
+HP
+LAPTOP-0JTPT5GN 
+27 Mart 2021 Cumartesi  12:24:34
